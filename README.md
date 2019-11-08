@@ -1,0 +1,2 @@
+# Siguria-e-Informacionit-per-Gazetaret
+Këtu mund të gjeni librin Siguria e Informacionit për Gazetarët, i cili ka si autorë Silkie Carlo &amp; Arjen Kamphuis dhe është një guid praktike për këdo që dëshironë të përmirësoj aftësitë e tij për të komunikuar në mënyrë të sigurt në botën digjitale. Ky libër i drejtohet gazetarëve investigativë, por ai është një burim i vlefshëm informacioni dhe njohurish për këdo që është i interesuar rreth temës së Sigurisë së Informacionit.
